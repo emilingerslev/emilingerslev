@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything, I'm happy to help!
 - 📫 How to reach me: emil@ingerslev.io
 - 😄 Pronouns: him/he
-- ⚡ Fun fact: Can sleep all day and work all night!:grin:
+- ⚡ Fun fact: I run every single day
